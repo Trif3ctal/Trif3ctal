@@ -1,3 +1,3 @@
-im 14 and trying to learn coding 
+im 15 and learning to program blah blahj
 
 
